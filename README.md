@@ -1,5 +1,5 @@
 Đescripters™, 
-a team of talanted coders, designers and scripters.  
+a team of talented coders, designers and scripters.  
 
 Join Us on -
 
