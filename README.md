@@ -7,11 +7,10 @@ Discord - www.dsc.gg/descripters
 
 Reddit - www.reddit.com/r/descripters
 
-itch.io - www.itch.io/descripters
+itch.io - www.descripters.itch.io/
 
 Website - www.descripters.ml
 
-Website - Coming Soon
 
 
 Đescripters™ Company
